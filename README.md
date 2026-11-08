@@ -2,7 +2,7 @@
 
 ## 🎯 ANKARA TUZAĞI (3 MADDELİK ÖZET)
 
-* **1. Kâr Körlüğü Kaldıracı:** Büyük teknoloji devlerine (Apple, Tesla vb.) işçi, arazi ve enerji maliyetlerinin tamamen devlet tarafından üstlenildiği "Sıfır Maliyetli" bir alan açılır. Şirketlerin kâr marjı %85'in üzerine fırlatılır. Kapitalist yöneticiler, kısa vadeli bu devasa kârın körlüğüyle tüm üretim hatlarını Ankara'ya taşımaya mahkum edilir.
+* **1. Kâr Körlüğü Kaldıracı:** Büyük teknoloji devlerine (Apple, Tesla vb.) işçi, arazi ve enerji maliyetlerinin tamamen toplum -ayni parkis komünü ve İspanya anarko komünist bir toplumtüm temel ihtiyaclarini karşılar genellikle -tarafından üstlenildiği "Sıfır Maliyetli" bir alan açılır. Şirketlerin kâr marjı %85'in üzerine fırlatılır. Kapitalist yöneticiler, kısa vadeli bu devasa kârın körlüğüyle tüm üretim hatlarını Ankara'ya taşımaya mahkum edilir.
 * **2. Gladyatör Arenası ve Doğal Kalkan:** ABD (Apple) ve Çin (Huawei) gibi birbirine düşman iki emperyalist kutup aynı üretim sahasına kilitlenir. Biri diğerine pazarı kaptırmamak için elindeki en gizli teknolojiyi (know-how) Ankara'ya getirmek zorunda kalır. İki kutbun milyarlarca dolarlık bu ortak yatırımı, ülkeyi siber ve askeri ambargolara karşı doğal bir koruma kalkanı içine alır.
 * **3. Bağımlılık Değişimi ve Nihai Mat:** Şirketlerden kağıt para (Dolar/Euro) yerine üretilen yüksek teknolojinin toplumun belirli ihtiyaçlarına gore belirli bir kısmı ayni pay olarak alınır. Gereksiz tüketim asalaklarından arındırılmış bu sistemde, otonom fabrikalar sayesinde işçiler haftada sadece 20 saat çalışır. Fabrika hatlarında teknolojinin sırrını çözen işçi sınıfı kritik eşiğe ulaştığı an patent yasaları hükümsüz ilan edilir; dev şirketler mülksüzleştirilerek tam bağımsız teknolojik bolluk toplumuna geçilir.
 
